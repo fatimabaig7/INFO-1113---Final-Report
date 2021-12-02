@@ -1,1 +1,2 @@
 # INFO-1113---Final-Report
+For the Final Report, I had various different Parts. I did the executive summary, the introduction, interface prototype, and the conclusion. I also put everyones work together and edited it for any errors. I  took the lead on this project, I got everyone to send me their work and had to chase after them if I did not receive it on the day I was supposed to. It was extremely stressful, but I managed to put everything together in time.
